@@ -24,5 +24,7 @@ But don't get it twisted, I also appreciate some quiet time.
 
 I dig those serene moments when I can just kick back, relax, and let my mind wander.
 
-So, if you're down for some high-flying adventures, groovin' to NINEONE's tunes, and exploring the world with a laid-back vibe, hit me up. Let's make some memories, yo! ✌️
+So, if you're down for some high-flying adventures, groovin' to NINEONE's tunes, and exploring the world with a laid-back vibe, hit me up. 
+
+Let's make some memories, yo! ✌️
 
